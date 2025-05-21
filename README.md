@@ -1,1 +1,0 @@
-# self_orginizating_maps_basics
